@@ -1,4 +1,4 @@
-# Dharani - ACCQUIRE | ANALYSE | ADOPT
+# Bhoomi - ACCQUIRE | ANALYSE | ADOPT
 
 # [Check the website](https://www.canva.com/design/DAFPLuZDPko/Twh33CR27M6Zg4Kuu5E4JA/view?website#2:collections)
 
